@@ -2,7 +2,7 @@
 - 👀 I’m interested in FOOTBALL,CRICKET AND FORMULA 1
 - 🌱 I’m currently learning COMPUTER SCIENCE
 - 💞️ I’m looking to collaborate on PYTHON, REACT JS, NEXT JS AND MORE...
-- 📫 How to reach me : www.linkedin.com/in/mohammed-affan-shaikh
+- 📫 How to reach me : www.linkedin.com/in/mohammed-affan-shaikh OR mail me : shkaffan04@gmail.com
 
 
 <!---
